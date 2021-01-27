@@ -42,7 +42,7 @@ Basic knowledge:
 
 #### Education
 
-Polesie State University, department Information technology of the financial and credit system( 2015-2019)
+Polessky State University, department Information technology of the financial and credit system( 2015-2019)
 
 ---
 
